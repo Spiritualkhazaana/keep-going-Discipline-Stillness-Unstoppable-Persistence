@@ -1,1 +1,3 @@
-# keep-going-Discipline-Stillness-Unstoppable-Persistence
+# *Keep Going: Discipline, Stillness & Unstoppable Persistence | Shi Heng Yi Wisdom*
+## *Discover how to keep going through discomfort with Shi Heng Yi's powerful teachings on discipline, momentum, stillness, and building your future self through daily consistency. Stop waiting to feel ready—start moving now. Build momentum, embrace discipline, and keep going until you become unstoppable.* [More details…](https://spiritualkhazaana.com/web-stories/keep-going-discipline-stillness-unstoppable-persistence/)
+## #KeepGoing #ShiHengYi #Discipline #MentalStrength #Consistency #Motivation #InnerPeace #GrowthMindset
